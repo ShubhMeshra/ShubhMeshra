@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shubhammeshram807@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFGqZukwB4/A7eiC1oPlQceO6Xyj6JoaA/edit?utm_content=DAFGqZukwB4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFGqZukwB4/A7eiC1oPlQceO6Xyj6JoaA/edit?utm_content=DAFGqZukwB4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://www.canva.com/design/DAFGqZukwB4/qHj4PQcBFU96i1IFIvxVTA/view?utm_content=DAFGqZukwB4&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAFGqZukwB4/qHj4PQcBFU96i1IFIvxVTA/view?utm_content=DAFGqZukwB4&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
